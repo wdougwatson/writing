@@ -1,4 +1,4 @@
-**[wdougwatson](https://steemit.com/@wdougwatson) --** A shadowy flight into the dangerous world of a man who does not exist. A ~~young~~ loner on a crusade to champion the cause of the innocent, the helpless, the powerless, in a world of banksters who operate above the law. 
+**[wdougwatson](https://steemit.com/@wdougwatson) --** A shadowy flight into the dangerous world of a man who does not exist. A ~~young~~ loner on a crusade to champion the cause of the innocent, the helpless, and the powerless in a world of banksters who operate above the law. 
 
 Also he has a strange sense of humor. 
 
